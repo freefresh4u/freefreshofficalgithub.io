@@ -5,5 +5,5 @@
 ### help charites buy water **_filters_**.
 ![image](https://github.com/user-attachments/assets/ef786224-7bc4-49bc-83fe-7ac1d24b75fe)
   ### Go to our website: 
-  ![link](https://crimson-mayflower-yb83.squarespace.com/config/)
+  !(https://crimson-mayflower-yb83.squarespace.com/config/)
 ## Sincerley, the FreeFresh Team

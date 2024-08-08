@@ -6,4 +6,5 @@
 ![image](https://github.com/user-attachments/assets/ef786224-7bc4-49bc-83fe-7ac1d24b75fe)
   ### Go to our website: 
   !(https://crimson-mayflower-yb83.squarespace.com/config/)
+  !(https://gofund.me/9cc61fb1)
 ## Sincerley, the FreeFresh Team
